@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Logic Pro for macOS filter with Logic Pro for macOS secure Filter: social-media-export & video-stabilization. Featuring social-media-export and
 
 
 
